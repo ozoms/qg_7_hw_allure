@@ -1,0 +1,1 @@
+# qg_7_hw_allure
